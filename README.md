@@ -1,1 +1,1 @@
-# Sega-Astro-City-Restoration-----ASUTOROSHITI-
+Sega Astro City Restoration - (アストロシティ - ASUTOROSHITI)
